@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Slipngo77
+- 👀 I’m interested in learning more about coding in making and developing channels and tools.
+- ![FB_IMG_1729294875289](https://github.com/user-attachments/assets/3e8ca80b-194b-458c-aab5-fa9644e75f4e)
